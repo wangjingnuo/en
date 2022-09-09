@@ -1,1 +1,1 @@
-# [Website](https://en.wangjingnuo.ga)
+# [Website](https://en.wangjingnuo.cf)
